@@ -1,6 +1,6 @@
 ### ill come up with a creative thing to do here, but for now
 
-# Creative Engineer and Co-Founder of [bgsl.lol](http://bgsl.lol)
+# Creative Engineer and Partner @ [bgsl.lol](http://bgsl.lol)
 ## Formerly Creative Tech @ Museum Of Ice Cream
 ### Formerly Formerly Parson Design + Tech
 Formerly Formerly Formerly EYEBEAM
